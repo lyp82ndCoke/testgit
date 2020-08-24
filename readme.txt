@@ -1,1 +1,1 @@
-错了！ oh!my god!   这是在知嘛文化添加的
+oh!my god! 
